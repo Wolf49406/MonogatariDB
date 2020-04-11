@@ -133,7 +133,7 @@ Musubimonogatari / История связи (2017)
 
 Том 23  
 Shinobumonogatari / История скрытности (2017)
-- Shinobu Mastered / Горчица Шинобу  &&& 35, 47 [ENG]
+- Shinobu Mastered / Становление Шинобу &&& 35, 47 [ENG]
 
 Том 24  
 Yoimonogatari / История сумерек (2018)

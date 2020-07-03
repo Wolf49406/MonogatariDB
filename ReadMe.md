@@ -149,8 +149,8 @@ Amarimonogatari / История избытка (2019)
 
 Том 26  
 Ougimonogatari / История веера
-- Ogi Light / Свет Оги
-- Ogi Flight / Полёт Оги
+- Ougi Light / Свет Оуги
+- Ougi Flight / Полёт Оуги
 
 Том 27  
 Shinomonogatari (Vol. 1) / История смерти

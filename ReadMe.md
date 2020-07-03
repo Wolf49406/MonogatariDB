@@ -24,7 +24,7 @@ Bakemonogatari (Vol. 2) / История монстров (2006)
 Kizumonogatari / История ран (2008)
 - Koyomi Vamp / Вампир Коёми
 
-Том 4 
+Том 4  
 Nisemonogatari (Vol. 1) / История подделок (2008)
 - Karen Bee / Пчела Карэн  &&&  1-6/22 [RUS]
 
